@@ -1,0 +1,1 @@
+# Mapa_Da_Eleicoes_2022
